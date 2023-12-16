@@ -1,2 +1,3 @@
 # weediam
-a revolutionary new art collection from the AI Disc Jockey that symbolizes the focus and determination of those pushing for cannabis reform.
+A revolutionary new art collection from the AI Disc Jockey that symbolizes the focus and determination of those pushing for cannabis reform.
+http://www.SafeBanking.us
